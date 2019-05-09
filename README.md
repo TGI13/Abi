@@ -187,183 +187,131 @@ Felix: "Dann können wir ja übers ganze Wochenende Extasy nehmen."
 Frau Hartmann: "Das ist eine großartige Idee"
 ~ 4.10.2018
 
+Benno: "Wieso, hattesch du dreckige Gedanken?"
+Julian: "Ja, ganz viele"
+~ 4.10.2018
 
-Benno: wieso, hattesch du dreckige Gedanken?
-Julian: ja, ganz viele
-4.10.2018
+"Der Stammbaum ist ein Kreis" ~ Herr Bammert 4.10.2018
 
+Benno: "Was würdest du tun, wenn ich ne Frau wäre?"
+Dominik: "Ich würd dich absolut ignorieren."
+~ 4.10.2018
 
-Der Stammbaum ist ein Kreis ~ Herr Bammert 4.10.2018
+"Vielleicht haben sie Angst, dass irgendwelche klebrigen Flecken auf die Kleidung bekommen" ~ Herr Frommer, 4.10.2018
 
+"Have I ever sucked cock,that wasn't from God?" ~ Julian Eiperle, 4.10.2018
 
-Benno: Was würdest du tun, wenn ich ne Frau wäre?
-Dominik: Ich würd dich absolut ignorieren.
-4.10.2018
+"Die Lehrer freuen sich schon, dass sie wieder kommen" ~ Random Lehrer, 4.10.2018
 
+"Ich mag es wenn der Heilige Geist mich vollkommen durchdringt" ~ Julian Eiperle, 4.10.2018
 
-Vielleicht haben sie Angst, dass irgendwelche klebrigen Flecken auf die Kleidung bekommen ~ Herr Frommer 4.10.2018
+Benno: "Wenn es schneit, kommt Gott auf uns herab, oder?"
+Julian: "Gott kommt auf uns herab, im Sommer wie im Winter. Um genau zu sein in uns hinein ... Es ist wundervoll."
+~ 4.10.2018
 
+"Es gibt keine türkische Kultur." ~ Fr. Scheib, 28.9.2018
 
-Have I ever sucked cock that wasn't from God? ~ Julian Eiperle 4.10.2018
+"Aus meiner Sicht gibt es Statistiken dafür" ~ Frau Scheib, 28.9.2018
 
-
-Die Lehrer freuen sich schon, dass sie wieder kommen ~ Random Lehrer 4.10.2018
-
-
-Ich mag es wenn der Heilige Geist mich vollkommen durchdringt ~ Julian Eiperle 4.10.2018
-
-
-Wenn es schneit, kommt Gott auf uns herab, oder?~ Benno
-Gott kommt auf uns herab, im Sommer wie im Winter. Um genau zu sein in uns hinein... Es ist wundervoll. ~ Julian Eiperle
-
-4.10.2018
-
-
-"Es gibt keine türkische Kultur." - Fr. Scheib 28.9.2018
-
-
-Aus meiner Sicht gibt es Statistiken dafür ~ Frau Scheib 28.9.2018
-
-
-Thomas: [...] Z.B schwule sind bei Frau Hartmann nicht erwünscht
-Frau Hartmann: Und Türken auch nicht
+Thomas: "[...] z.B schwule sind bei Frau Hartmann nicht erwünscht"
+Frau Hartmann: "Und Türken auch nicht"
 ~ 27.9.2018
 
-
-Frau Hartmann: Seit ihr schon fertig?
-Alex Pflug: Sag Mal haben sie Hummeln im Hintern?
+Frau Hartmann: "Seit ihr schon fertig?"
+Alex Pflug: "Sag mal, haben sie Hummeln im Hintern?"
 ~ 27.9.2018
 
+"Können Sie bitte Abdullah ruhig stellen?" ~ Alex Pflug 2018
 
-Können sie bitte Abdullah ruhig stellen? ~ Alex Pflug 2018
+"Hallo Volk" ~ Alex Pflug, September 2018
 
+"Ich würd gern kommen aber ich kann nicht" ~ Janik Wieland, 26.9.2018
 
-Hallo Volk ~ Alex Pflug, September 2018
+"Dann bekommt ihr einen Thomas" ~ Frau Schlappa, 26.9.2018
 
-
-Ich würd gern kommen aber ich kann nicht ~ Janik Wieland 26.9.2018
-
-
-Dann bekommt ihr einen Thomas ~ Frau schlappa 26.9.2018
-
-
-Benno: kommt Jesus in dich?
-Julian: ja, beim Gottesdienst, wenn ich seinen Leib empfange, kommt er in mich.
+Benno: "Kommt Jesus in dich?"
+Julian: "Ja, beim Gottesdienst, wenn ich seinen Leib empfange, kommt er in mich."
 ~ September 2018
 
+"[...] Mal tiefer damit" ~ Thomas Schuely, 26.9.2018
 
-[...] Mal tiefer damit ~ Thomas Shuely 26.9.2018
+"Delivery Nigger" ~ Benno Seiboth, 26.9.2018
 
+"Da isch n Loch in der Mitte, ich sehr ja dann wenn was Weißes raus kommt" ~ Maxi Goehrke, 24.9.2018
 
-Delivery nigger ~™benno seiboth 26.9.2018
+"Genug für alle weiblichen Dinger" ~ Thomas Schuehly, 24.9.2018
 
+"Ich hab mal aus Versehen Jura studiert" ~ Frau Scheib, 24.9.2018
 
-Da isch n Loch in deritte, ich sehr ja dann wenn was weißes raus kommt ~ Maxi goerkhe 24.9.2018
+"C++ heist C++, weil in C++ c++ eingeführt wurde." ~ Marc Auberer, 24.9.2018
 
-
-Genug für alle weiblichen Dinger ~ Thomas Shuely, 24.9.2018
-
-
-Ich hab Mal ausversehen Jura studiert ~ Frau Scheib 24.9.2018
-
-
-C++ heist c++, Weil in c++ c++ eingeführt wurde ~ Marc Auberer 24.9.2018
-
-
-"Muslime sind immer Terroristen. Immer. Immer." - Pfundstein 2018 (21.9.2018)
-
+"Muslime sind immer Terroristen. Immer. Immer." ~ Pfundstein 2018, 21.9.2018
 
 *Frau schlappa redet ewig lang mit anderer Lehrerin
-Alex: manche Dinge ändern sich nie
-Frau Schlappa: Welche denn?
-Alex: Waren sie schon Mal im Hühnerstall?
+Alex: "manche Dinge ändern sich nie"
+Frau Schlappa: "Welche denn?"
+Alex: "Waren sie schon mal im Hühnerstall?"
 
+Frau Schlappa: "Cassandra, wenn er [Alex] dich nervt, musst du ihn packen und schütteln."
+Alex: "Sie riechen heute gut Frau Schlappa."
+Frau Schlappa: "Ich geh dann Mal wieder"
 
-Frau schlappa: Cassandra, wenn er [Alex] dich nervt, musst du ihn packen und schütteln.
-Alex: Sie riechen heute gut Frau schlappa.
-Frau schlappa: ich geh dann Mal wieder
+"Des versteh ich nicht" ~ Frau Scheib, 14.9.2018
 
+Herr Bammert: "Wo vorne und hinten ist, ist Definitionssache."
+Benno: "Wie bei ner Frau"
+~ 13.9.2018
 
-Des versteh ich nicht - Frau Scheib, 14.9.2018
+"Mir gehat jetzt heut tiefer rein" ~ Herr Bammert, 13.9.2018
 
+"Zoom mir nicht unter den Rock hier!" ~ Frau Schlappa, 12.9.2018
 
-Herr bammert: Wo vorne und hinten ist, ist Definitionssache.
-Benno: wie bei ner Frau
+"Ihr dürft die Handys nicht abschalten und in den Schulranzen packen" ~ Herr Bammert, 12.9.2018
 
-13.9.2018
+"Irgendwann hörst du einfach auf Licht zu reflektieren" ~ Benno Seiboth, 10.9.2018
 
-
-Mir gehat jetzt heut tiefer rein ~ Herr bammert 13.9.2018
-
-
-Zoom mir nicht unter den Rock hier! ~ Frau schlappa 12.9.2018
-
-
-Ihr dürft die Handys nicht abschalten und in den Schulranzen packen ~ Herr bammert, Lehrer
-12.9.2018
-
-
-Irgendwann hörst du einfach auf Licht zu reflektieren ~ Benno seiboth (zu mir) 10.9.2018
-
-
-Scheib* teilt Zeugnis aus
-Scheib: Seslilaya gut gemacht! Weiter so!
-
-~25.7.2018
-
+Frau Scheib teilt Zeugnis aus
+Frau Scheib: "Seslilaya, gut gemacht! Weiter so!"
+~ 25.7.2018
 
 *Mark wirft Alex mit Papierkugel ab
-Alex: Aua
-Frau Scheib: Verdient!
+Alex: "Aua"
+Frau Scheib: "Verdient!"
+~ 24.7.2018
 
-~24.7.2018
+"Cassandra pech gehabt!" ~ Thomas, 24.7.2018
 
+"Schwarze haben sich einfach Strafen verdient!" ~ Frau Scheib, 10.7.2018
 
-Cassandra pech gehabt!
-~ Thomas 24.7.2018
+Timo: "woher wissen sie, dass Philip nicht recherchiert hat?"
+Frau scheib: "Schau ihn doch mal an"
+~ 10.7.2018
 
+"Ich weiß gar nicht was ich ihm antun würde, wenn ich's könnte" ~ Frau Schlappa (über Alex), 9.7.2018
 
-"Schwarze haben sich einfach Strafen verdient!" - Scheib 10.7.2018
+"Wir könnten ihn wie ne piñata aufhängen und drauf schlagen" ~ Same wie beim oberen
 
+"Dann roll ich hier mal raus" ~ Frau Schlappa, 9.7.2018
 
-Timo: woher wissen sie, dass Phillip nicht recherchiert hat?
-Frau scheib: schau ihn doch Mal an
-~10.7.2018
+"Des muss richtig sein, weil es richtig ist." ~ Merlin 6.7.2018
 
+Frau Scheib: "auf jetzt, nach vorne!"
+Alex: "Ach komm schon, nur noch dieses Level"
+~ 6.7.2018
 
-Ich weiß gar nicht was ich ihm antun würde, wenn ich's könnte~ Frau Schlappa (über Alex) 9.7.2018
+"Sex mit Patrick Star ist immer gut" ~ Lukas Traub, 29.6.2018
 
-Wir könnten ihn wie ne piñata aufhängen und drauf schlagen ~ Same wie beim oberen
+"Ich bin Mann oder Frau, mir ists egal" ~ Max Maurer 28.6.2018
 
-Dann Roll ich hier Mal raus ~ Frau Schlappa 9.7.2018
+"Dann bin ich deine Frau" ~ Frau Schlappa, 27.6.2018
 
+"Größer ist doch besser!" ~ Frau Schlappa, 27.6.2018
 
-"Des muss richtig sein, weil es richtig ist." - Merlin 6.7.2018
+"Ich möcht nicht an eurer Stelle sein und des rechnen!" ~ Frau Hartmann, 26.6.2018 (beim austeilen der Klassenarbeit)
 
-
-Frau scheib: auf jetzt, nach vorne!
-Alex: ach komm schon, nur noch dieses Level
-~6.7.2018
-
-
-"Sex mit Patrick Star ist immer gut" - Lukas T. 29.6.2018
-
-
-Ich bin Mann oder Frau, mir ists egal ~max Maurer 28.6.2018
-
-
-Dann bin ich deine Frau ~ Frau Schlappa 27.6.2018
-
-
-Größer ist doch besser! ~ Frau Schlappa 27.6.2018
-
-
-Ich möcht nicht an eurer Stelle sein und des rechnen! ~ Frau Hartmann 26.6.2018, beim austeilen der Klassenarbeit
-
-
-Frau Schlappa: ich möchte jetzt gehen!
+Frau Schlappa: "Ich möchte jetzt gehen!"
 * Schulglocke Leutet
-~25.6.2018
+~ 25.6.2018
 
 
 Ich steck mein dick da rein ~ Thomas Shuely  20.6.2018
