@@ -46,19 +46,15 @@ Dominik: "Don't look behind you"
 
 "Gretchen das arme Ding" ~ Frau Schlappa, 22.11.2018
 
+"Du sollst nicht Englisch mit Englisch übersetzen" ~ Frau Scheib, 20.11.2018
 
-Du sollst nicht Englisch mit Englisch übersetzen ~ Frau Scheib, 20.11.2018
+"Was heißt crime?" ~ Thomas Schuely, 20.11.2018
 
+Benno: "du Hasch n Stück Scheiße gefressen."
+Lukas Rehm: "Des auch, nur des zählt nicht"
+~ 19.11.2018
 
-Was heist crime? ~ Thomas Shuely, 20.11.2018
-
-
-Benno: du Hasch n Stück scheiße gefressen.
-Lukas Rehm: des auch, nur des zählt nicht
-~19.11.2018
-
-
-Mit dem E-Modul kann man prüfen, wie steif ein Körper ist ~ Herr Bammert, 14.11.2018
+"Mit dem E-Modul kann man prüfen, wie steif ein Körper ist" ~ Herr Bammert, 14.11.2018
 
 
 *meine Freundin sieht Frau Scheib meme
