@@ -6,7 +6,7 @@
 
 "11+17=18" - Frau Scheib 2018, 13.12.18
 
-"OH! Ein Penis!" ~ Frau Schlappa, 13.12.2018
+"Oh! Ein Penis!" ~ Frau Schlappa, 13.12.2018
 
 "So, jetzt wieder Bier und Schnaps" ~ Herr Frommer, 12.12.2018
 
@@ -56,281 +56,136 @@ Lukas Rehm: "Des auch, nur des zählt nicht"
 
 "Mit dem E-Modul kann man prüfen, wie steif ein Körper ist" ~ Herr Bammert, 14.11.2018
 
-
-*meine Freundin sieht Frau Scheib meme
-Dana: Du bist dir sicher dass des ne Frau Isch?
-Ich: Ja
-*Kurze wird nichts gesagt
-Dana: WTF
+*Dominiks Freundin sieht Frau Scheib Meme
+Dana: "Du bist dir sicher dass des ne Frau Isch?"
+Domi: "Ja"
+*Kurz wird nichts gesagt
+Dana: "WTF"
 ~ 13.11.2018
 
+"Philip isch der Nullpunkt" ~ Frau Ritz, 13.11.2018
 
-Phillip isch da Nullpunkt ~ Frau Ritz, 13.11.2018
-
-Phillip du Null ~ Alex Pflug, wenige Sekunden später, 13.11.2018
-
+"Philip du Null" ~ Alex Pflug, wenige Sekunden später, 13.11.2018
 
 *Scheib entknüllt zerknülltes Blatt
-Frau Scheib: Maximilian [Goerkhe], was macht dein Test hier?
-~13.11.2018
+Frau Scheib: "Maximilian [Goehrke], was macht dein Test hier?"
+~ 13.11.2018
 
+"Dich werde ich noch ficken" ~ Merlin Sommerfeld, 13.11.2018
 
-Dich werde ich noch ficken ~ Merlin Sommerfeld, 13.11.2018
-
-
-*random typ enters room while class
-Random Typ: Liegt hier zufällig ne Strafarbeit Rum?
-Benno: isch es dies hier?
-Random Typ: Ja Danke
-*Random Typ graps Strafarbeit, leaves room
-Random Typ: YEEAAY!
+*random typ enters room during class
+Random Typ: "Liegt hier zufällig ne Strafarbeit rum?"
+Benno: "isch es diese hier?"
+Random Typ: "Ja danke"
+*Random Typ grabs Strafarbeit, leaves room
+Random Typ: "YEEAAY!"
 ~ 12.11.2018
 
+"Die Schulleitung hasst es wenn die Schüler Spaß haben" ~ Alex Pflug, 12.11.2018
 
-Die Schulleitung hasst es wenn die Schüler Spaß haben ~ Alex Pflug 12.11.2018
+"Weil [beim Wintersporttag] jedesmal Schüler kaputt gehen" ~ Frau Scheib, 12.11.2018
 
+"Ich red mit meinem Penis" ~ Jannik Vöhringer, 12.11.2018
 
-Weil [beim Wintersporttag] jedesmal Schüler kaputt gehen ~ Frau Scheib 12.11.2018
-
-
-Ich red mit meinem Penis ~ Jannik Vöhringer 12.11.2018
-
-
-Frau Scheib: was machst du da?
-Philipp b: ich muss mein Bein schütteln
+Frau Scheib: "Was machst du da?"
+Philip: "Ich muss mein Bein schütteln"
 ~ 12.11.2018
 
+"Kann man ein Misstrauensvotum gegen den Klassensprecher machen?" ~ 12.11.2018, (warscheinlich) Maximilian Grieser
 
-Kann man ein Misstrauensvotum gegen den Klassensprecher machen? ~ 12.11.2018 , (warscheinlich) Maximilian Grieser
+"Ihr könnt machen was ihr wollt aber jetzt noch kurz Ruhe" ~ Frau Scheib, 12.11.2018
 
-Ihr könnt machen was ihr wollt aber jetzt noch kurz Ruhe ~ Frau Scheib 12.11.2018
+"Wer die Seiten noch nicht gelesen hat, der liest die Seiten bitte nochmals." ~ 12.11.2018, Frau Hartmann
 
+"Wenn I mein kolba gega die Wand drücka will" ~ 7.11.2018, Herr Bammert
 
-Wer die Seiten noch nicht gelesen hat, der ließt die Seiten bitte nochmals. ~ 12.11.2018 Frau Hardtmann
+Frau Schlappa: "[...] Ein schnitt von 6.4"
+Philip: "Yeah"
+Frau Schlappa: "Es war schon schlechter"
+~ 6.11.2018
 
+"Ich habe das Umfeld in der Klassengruppe als toxic empfunden" ~ Frau Scheib, 5.11.2018
 
-Wenn I mein kolba gega die Wand drücka will - Herr Bammert  7.11.2018
+"Wenn du Tails willst, ich kann's dir besorgen" ~ Janik Wieland, 24.10.2018
 
+"Genau so n großer Sack wie ich" ~ Thomas Schuehly, 24.10.2018
 
-Frau Schlappa: [...] Ein schnitt von 6.4
-Phillip: yeah
-Frau Schlappa: Es war schon schlechter
-6.11.2018
+"Ein Prophet! Steinigt ihn!" ~ Herr Alb, 19.10.2018
 
+"Ich trinke zu viel und korrigiere zu wenig" ~ Herr Pfundstein, 19.10.2018
 
-Ich habe das Umfeld in der Klassengruppe als toxic empfunden ~ Frau Scheib, 5.11.2018
-
-→Warning: möglicherweise kein 1zu1 Zitat
-
-
-Nigger ~ Benno Seiboth, 5.11.2018
-
-
-Wenn du tails willst, ich kann's dir besorgen ~ Janik Wieland, 24.10.2018
-
-
-Genau so n großer sack wie ich ~ Thomas Shuely, 24.10.2018
-
-
-Ein Prophet! Steinigt ihn! ~ Herr Alb 19.10.2018
-
-
-Ich trinke zu viel und korrigiere zu wenig ~ Herr Pfundstein 19.10.2018
-
-
-*Lehrer liest prophetische rede von Julian
+*Lehrer liest prophetische Rede von Julian
 Herr Alb: "also Stelle ich euch vor die Wahl ob ihr den Tod oder das Leben wählt"
 Also das ist zu wenig
 ~ 19.10.2018
 
+"Wenn du schon Mal streckst, kannst du auch aufs Klo Benno" ~ Frau Ritz, 23.10.2018
 
-Wenn du schon Mal streckst, kannst du auch aufs Klo Benno ~ Frau Ritz, 23.10.2018
+Benno [zu Julian]: "Jesus wird so hart in dich kommen, dass du dich erfüllt fühlst."
+Dominik: "gefüllt"
+Julian: "ja."
+~ 18.10.2018
 
+"Was schwingt da eigentlich Cassandra?"  ~ Herr Bammert, 18.10.2018
 
-Benno [zu Julian]: Jesus wird so hart in dich kommen, dass du dich erfüllt fühlst.
-Dominik: gefüllt*
-Julian: ja.
-~18.10.2018
+"Janik muss schnell essen, bevor er kommt (Es war der Lehrer gemeint)" ~ Dominik Gierl, 18.10.2018
 
-
-Was schwingt da eigentlich Cassandra?  ~ Herr Bammert 18.10.2018
-
-
-Janik muss schnell essen, bevor er kommt ~ Dominik Gierl 18.10.2018
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Es war der Lehrer gemeint
-
-
-Gott kommt in Julian [Eiperle] Hardtmann ~ Marc Auberer 18.10.2018
-
-
-Jonas: Bei Google arbeiten doch nur so Larry's
-Dominik: Der CEO von Google heißt Larry Page
+Jonas: "Bei Google arbeiten doch nur so Larrys"
+Dominik: "Der CEO von Google heißt Larry Page"
 ~ 2018
 
-
-*goldener Topf Cover mit Gesicht mit langer nase
+*Goldener Topf Cover mit Gesicht mit langer Nase
 Alex Pflug sagt igendwas mit "keine Juden"
 *Frau Schlappa macht zustimmende Geste
 ~ 17.10.2018
 
+"Herr Bammert ist der Erreger" ~ Janik Wieland, 17.10.2018
 
-Herr Bammert ist der Erreger ~ Janik Wieland, 17.10.2018
+Frau Ritz: "Ich geh kurz des Blatt kopieren, ihr seid solange leise."
+Benno Seiboth: "NEIN!"
+~ 17.10.2018
 
+"Pippi" ~ Frau Ritz 17.10.2018
 
-Frau Ritz: ich geh kurz des Blatt kopieren, ihr seit solange leise.
-Benno Seiboth: NEIN!
-~17.10.2018
+"Zeit für ein Ritual" ~ Alex Plug, 16.10.2018
 
+"Lass Mal Emilio auf dem Tisch opfern" ~ Felix Berg, 16.10.2018, wenige Sekunden später
 
-Pippi ~ Frau Ritz 17.10.2018
+*Benno, Gibt Deutsch KA ab
+Frau Scheib: "Darf er das überhaupt?"
+~ 15.10.2018
 
+*Dominik ist gerade am Abgeben, weil er mit der Deutsch KA fertig ist
+Frau Scheib: "Viel Erfolg!"
+~ 15.10.2018
 
-Rapo ~ Alex plug, (neuer Spitzname von Benno) 17.10.3018
-Rapex ~ Benno, (Response auf Alex) 17.10.2018
-Aylex ~ Benno
-
-
-
-
-Zeit für ein Ritual ~Alex Plug, 16.10.2018
-
-Lass Mal Emilio auf dem Tisch opfern ~ Felix Berg 16.10.2018, wenige Sekunden später
-
-
-*Benno, Gibt deutsch ka ab
-Frau Scheib: Darf er das überhaupt?
-15.10.2018
-
-
-*Ich, bin gerade am gehen, weil ich mit der deutsch ka fertig bin
-Frau Scheib(Zu mir): Viel Erfolg!
-~15.10.2018
-
-
-Marc Auberer: Ich hab mir grad Spontan n Google Home Mini bestellt.
-Jonas Groß: Geb's doch zu, Dominik hat dich dazu angestiftet
+Marc Auberer: "Ich hab mir grad Spontan n Google Home Mini bestellt."
+Jonas Groß: "Geb's doch zu, Domi hat dich dazu angestiftet"
 ~ 12.10.2018
 
+"Warum glauben sie, dass Frauen die gleichen Rechte haben sollten wie Männer? (Frage an Letycja)" ~ Herr Alb 5.10.2018
 
-Warum glauben sie, dass Frauen die gleichen Rechte haben sollten wie Männer? ~ Herr Alb 5.10.2018
-
-Frage an Leytizia
-
-
-Philipp: Es gibt Gerüchte, dass die TGI Rassistisch ist
-Alex Pflug: Welcher Neger behauptet sowas?
+Philip: "Es gibt Gerüchte, dass die TGI Rassistisch ist."
+Alex Pflug: "Welcher Neger behauptet sowas?"
 ~ 11.10.2018
 
+"Was isch denn mit m Bruno los?" ~ 11.10.2018, Frau Hartmann
 
-Was isch denn mit m Bruno los? ~ 11.10.2018, Frau Hartmann
+"N kolba der in a Öl nei rauscht. Des isch dann wieder Kopfkino" ~ Herr Bammert 11.10.2018
 
+"Er ist groß und dic"k ~ Frau Schlappa, 10.10.2018
 
-N kolba der in a Öl nei rauscht. Des isch dann wieder Kopfkino ~ Herr Bammert 11.10.2018
+"War ja klar, wenn man sich ein Taschentuch raus holt muss man nicht mehr" ~ 10.10.2018, Janik Wieland
 
+"Ich dachte wir weisen den Menschen keine Nummern mehr zu" ~ Alex Pflug 9.10.2018
 
-Er ist groß und dick ~ Frau Schlappa 10.10.2018
+Frau Hartmann: "wir können ja ne Abschlussfahrt nach Berlin machen"
+Alex: "Wir wollen doch in der Abschlussfahrt keine Moscheen besichtigen"
+~ 4.10.2018
 
-
-War ja klar, wenn man sich ein Taschentuch raus holt muss man nicht mehr ~ 10.10.2018, Janik Wieland
-
-Da holt man sich schon mal ein Tempo raus und dann kommt nichts ~ Marc Auberer 10.10.2018
-
-
-[10/14, 12:09 AM] Phillip: Ein wahrer Freund wird nicht eine Textnachricht von Gluckwünschen senden.
-Ein wahrer Freund sendet kein Geld.
-Ein wahrer Freund schickt 50 Porno Seiten!
-
-www.4tube.com
-www.8teenxxx.com
-www.alotporn.com
-www.beeg.com
-www.bustnow.com
-www.cliphunter.com
-www.definebabes.com
-www.deviantclip.com
-www.drtuber.com
-www.empflix.com
-www.fantasti.cc
-www.fapdu.com
-www.freeporn.com
-www.freudbox.com
-www.fuq.com
-www.fux.com
-www.grayvee.com
-www.hellxx.com
-www.hustlertube.com
-www.jugy.com
-www.jizzhut.com
-www.kaktuz.com
-www.keezmovies.com
-www.kinxxx.com
-www.laraporn.com
-www.leakedporn.com
-www.lovelyclips.com
-www.lubetube.com
-www.mofosex.com
-www.monstertube.com
-www.madthumbs.com
-www.moviefap.com
-www.moviesand.com
-www.orgasm.com
-www.perfectgirls.net
-www.pichunter.com
-www.planetsuzy.com
-www.porn.com
-www.porn-plus.com
-www.porncor.com
-www.pornhub.com
-www.pornrabbit.com
-www.porntitan.com
-www.pussy.org
-www.redtube.com
-www.tube8.com
-www.xhamster.com
-www.xnxx.com
-www.xvideos.com
-www.youjizz.com
-
-Send diese Nachricht an die wirklichen Freunde.
-💪👍💃💃💃👉✊💋
-Endlich ein nützlicher Kettenbrief! 😄😂😂😂😂
-[10/14, 7:51 AM] Alex Pflug: 🧐 Mal sehen
-
-~ 14.10.2018, per WhatsApp
-
-
-Ich dachte wir weisen den Menschen keine Nummern mehr zu ~ Alex Pflug 9.10.2018
-
-
-Frau Hartmann: wir können ja ne Abschlussfahrt nach Berlin machen
-Alex: Wir wollen doch in der Abschlussfahrt keine Moscheen Besichtigen
-4.10.2018
-
-
-Felix: dann können wir ja übers ganze Wochenende extasy nehmen.
-Frau Hartmann: Dass ist eine großartige Idee
-4.10.2018
+Felix: "Dann können wir ja übers ganze Wochenende Extasy nehmen."
+Frau Hartmann: "Das ist eine großartige Idee"
+~ 4.10.2018
 
 
 Benno: wieso, hattesch du dreckige Gedanken?
