@@ -12,17 +12,11 @@
 
 "Alex braucht Mal Freunde" ~ Frau Schlappa, 11.12.2018
 
-"Du Hurenbengel" ~ Alex Pflug (zu Benno), 10.12.2018
-
 "Ich hab auch krank" ~ Frau Hartmann, 10.12.2018
-
-"Lass Mal hochgehen, sonst bring ich mich noch um" ~ Jonas Groß, 10.12.2018
 
 "Schick mir mal bitte deine Sammlung an Zitaten und Fakten, dir du bis jetzt gesammelt hast. Muss für die Abizeitung langsam anfangen sammeln." ~ Alex, 4.12.2018
 
 "Schießt einfach Kreide ihr dummen Wixxer" ~ Phillip Bärsauter, 4.12.2018
-
-"Ich schwör, wenn mein Bus wieder zuerst kommt, wächst mir ein zweiter Schwanz und ich Tape euch beide" ~ Benno Seiboth 30.11.2018
 
 "Da gibt's größere und kleinere, aber ob die jetzt dicker und dünner sind..." ~ Herr Bammert, 29.11.2018
 
@@ -48,20 +42,11 @@ Dominik: "Don't look behind you"
 
 "Du sollst nicht Englisch mit Englisch übersetzen" ~ Frau Scheib, 20.11.2018
 
-"Was heißt crime?" ~ Thomas Schuely, 20.11.2018
-
 Benno: "du Hasch n Stück Scheiße gefressen."
 Lukas Rehm: "Des auch, nur des zählt nicht"
 ~ 19.11.2018
 
 "Mit dem E-Modul kann man prüfen, wie steif ein Körper ist" ~ Herr Bammert, 14.11.2018
-
-*Dominiks Freundin sieht Frau Scheib Meme
-Dana: "Du bist dir sicher dass des ne Frau Isch?"
-Domi: "Ja"
-*Kurz wird nichts gesagt
-Dana: "WTF"
-~ 13.11.2018
 
 "Philip isch der Nullpunkt" ~ Frau Ritz, 13.11.2018
 
@@ -217,7 +202,7 @@ Thomas: "[...] z.B schwule sind bei Frau Hartmann nicht erwünscht"
 Frau Hartmann: "Und Türken auch nicht"
 ~ 27.9.2018
 
-Frau Hartmann: "Seit ihr schon fertig?"
+Frau Hartmann: "Seid ihr schon fertig?"
 Alex Pflug: "Sag mal, haben sie Hummeln im Hintern?"
 ~ 27.9.2018
 
@@ -233,13 +218,9 @@ Benno: "Kommt Jesus in dich?"
 Julian: "Ja, beim Gottesdienst, wenn ich seinen Leib empfange, kommt er in mich."
 ~ September 2018
 
-"[...] Mal tiefer damit" ~ Thomas Schuely, 26.9.2018
-
 "Delivery Nigger" ~ Benno Seiboth, 26.9.2018
 
 "Da isch n Loch in der Mitte, ich sehr ja dann wenn was Weißes raus kommt" ~ Maxi Goehrke, 24.9.2018
-
-"Genug für alle weiblichen Dinger" ~ Thomas Schuehly, 24.9.2018
 
 "Ich hab mal aus Versehen Jura studiert" ~ Frau Scheib, 24.9.2018
 
@@ -279,8 +260,6 @@ Alex: "Aua"
 Frau Scheib: "Verdient!"
 ~ 24.7.2018
 
-"Cassandra pech gehabt!" ~ Thomas, 24.7.2018
-
 "Schwarze haben sich einfach Strafen verdient!" ~ Frau Scheib, 10.7.2018
 
 Timo: "woher wissen sie, dass Philip nicht recherchiert hat?"
@@ -289,7 +268,7 @@ Frau scheib: "Schau ihn doch mal an"
 
 "Ich weiß gar nicht was ich ihm antun würde, wenn ich's könnte" ~ Frau Schlappa (über Alex), 9.7.2018
 
-"Wir könnten ihn wie ne piñata aufhängen und drauf schlagen" ~ Same wie beim oberen
+"Wir könnten ihn wie ne piñata aufhängen und drauf schlagen" ~ Frau Schlappa (über Alex), 9.7.2018
 
 "Dann roll ich hier mal raus" ~ Frau Schlappa, 9.7.2018
 
@@ -333,7 +312,7 @@ Frau Scheib: "Was? Du sprichst kein Deutsch?"
 "Dominik, hör auf so viele Bilder zu machen! Wegen dir wird Google noch arm!"
 ~ Janik Wieland 18.6.2018
 
-"Wer bescheißt wird erschossen" ~ Lehrer vor der Deutsch Klassenarbeit, 18.5.2018
+"Wer bescheißt wird erschossen" ~ Herr Pfundstein vor der Deutsch Klassenarbeit, 18.5.2018
 
 "Soll ich meine Nummer aufschreiben damit ihr mich anrufen könnt, falls ihr nicht kommt?" ~ Frau Hartmann, 15.6.2018
 
@@ -380,12 +359,12 @@ Frau Scheib: "Ich bin müde, ich will schlafen"
 
 "Ich werde dich schänden!" ~ Benno seiboth 5.6.2018
 
-Herr Gräßle: "Welche Einheit wird hier gebraucht [...] Geschwindigkeit"
+Herr Grässle: "Welche Einheit wird hier gebraucht [...] Geschwindigkeit"
 Domi: "Spannung"
 ~ 2.3.2018, Physikunterricht
 
 "Da könnt ihr saugen so viel ihr wollt, irgendwann gibt's halt nicht mehr"
-~ Herr Gräßle, 2.3.2018
+~ Herr Grässle, 2.3.2018
 
 ...Natur anfassen
 "Ich bin nicht natur!" ~ 4.6.2018 Frau Schlappa
@@ -416,79 +395,60 @@ Emilio: "Der Schwangerschaftstest?"
 Max: "Ja"
 ~ 2018
 
-//28.2.2018
-(Also max Maurer am handy war)
+"Wir lernen nicht auswendig, wir sind ja nicht im 19ten Jahrhundert" ~ Ann Scheib, 2018
 
-#TGI Quotes
+Frau Scheib: "Emilio steh auf"
+Max Maurer: "Der steht schon"
+~ 2018
 
+"Die Bibel ist der größte humbug den es gibt" ~ A random guy on street, 2018
 
-[5/9, 11:34 AM] Felix Berg: "Wir lernen nicht auswendig, wir sind ja nicht im 19ten Jahrhundert" Ann Scheib 2k18
+Frau Ritz: "Ihr seid doch noch gar keine Väter."
+Viele: "Max!"
+Max: "Potenzielle"
+~ 9.5.2018
 
-[5/9, 11:36 AM] Thomas S: "Emilio steh auf" -Scheib "Der steht schon" -Max
+*Lehrerin redet über Faust
+Domi: "Immerhin lernt man in dem Buch, wie man verspätet abtreibt"
+~ 2018
 
-[5/9, 1:02 PM] Abdullah: "Die Bibel ist der größte humbug den es gibt"-A Random guy on Street 2018
+"Ihr sollt aufstehen, nicht auf den Tisch stehen!"
+"Ihr habt dass irgendwie falsch verstanden."
+~ Frau Scheib, 9.5.2018
 
+"Gehen wir ins Klassenzimmer oder bleiben wir hier?" ~ Emilio, 14.5.2018 (im Klassenzimmer)
 
+Maximilian Goerkhe: "Sie könnten ja Mal richtigen Englischunterricht machen, mit Grammatik, Rechtschreibung und so."
+Frau Scheib: "Achim, soll ich das jetzt kommentieren?"
 
-Frau Ritz: ihr seid doch noch gar keine Väter.
-Viele: Max!
-Max: potenzielle
-~9.5.2018
-
-
-*Lehrerin redet über faust8
-Ich: immerhin lernt man in dem Buch, wie man verspätet abtreibt
-~2018
-
-
-Ihr sollt aufstehen, nicht auf den Tisch stehen!
-Ihr habt dass irgendwie falsch verstanden.
-~fr. Scheib 9.5.2018
-
-
-Gehen wir ins Klassenzimmer oder bleiben wir hier? ~ Emilio 14.5.2018 (im Klassenzimmer)
-
-
-Maximilian Goerkhe: sie könnten ja Mal richtigen Englischunterricht machen, mit Grammatik Rechtschreibung und so.
-Fr scheib: Achim, soll ich das jetzt kommentieren
-
-
-Alex: der wollt mich nass machen!
-Fr scheib: wenn dann hast du's verdient!
+Alex: "Der wollt mich nass machen!"
+Fr Scheib: "Wenn, dann hast du's verdient!"
 ~ 8.5.2018
 
+"BBC ist riesig weltweit" ~ Frau Scheib, 8.5.2018
 
-BBC ist riesig weltweit ~ fr scheib 8.5.2018
-
-
-Frau Schlappa: ich bin heute schlecht gelaunt!
-Alex: Haben sie ihre Betragsstriche Zuhause vergessen?
+Frau Schlappa: "Ich bin heute schlecht gelaunt!"
+Alex: "Haben sie ihre Betragsstriche Zuhause vergessen?"
 ~ 7.5.2018
 
+"Ihr könnt jeder Zeit zu mir in den Kurs wechseln, es sei denn der Lehrer lässt euch gehen" ~ Frau Scheib, 2018
 
-„Ihr könnt jeder Zeit zu mir in den Kurs wechseln, es sei denn der Lehrer lässt euch gehen“ - Scheib 2018
+"Google - die freundliche Datenkrake von nebenan" ~ Janik Wieland, 2018
 
+"Neger." - Frau Scheib, 3.5.2018
 
-Google - die freundliche Datenkrake von nebenan
-~janik Wieland 2018
-
-
-"Neger." - Frau Scheib 3.5.2018
-
-
-Wo zeigt der Mittelfinger hin?
-Er zeigt zu euch.
-Da gehört er hin!
-~ Herr gräßle 3.5.2018
+"Wo zeigt der Mittelfinger hin?"
+"Er zeigt zu euch."
+"Da gehört er hin!"
+~ Herr Grässle 3.5.2018
 
 
 *Diskussion über das Wort Neger
-Alex: So lange du sie nicht Menschen nennst
-~3.5.2018
+Alex: "So lange du sie nicht Menschen nennst"
+~ 3.5.2018
 
-
--Maxi g: Im Internet stimmt alles, da steht ja auch "Wikipedia hat immer Recht" ~Abraham Lincoln.
--Cassandra: Hä? Was stimmt daran nicht?
+Maxi G: "Im Internet stimmt alles, da steht ja auch 'Wikipedia hat immer Recht' ~Abraham Lincoln.
+Cassandra: Hä? Was stimmt daran nicht?
 
 Frau Scheib: Max, Alex was macht ihr denn? Zieht euch wieder an! (18.10.2017 11:14 AM in der Karl-Arnold-Schule In Biberach während des Englisch Unterrichtes)
 
@@ -541,12 +501,10 @@ Warum machen sie mich an und nicht die halbe Klasse die mich seit ner halben Stu
 ~ Abdullah (laut schreiend, zu fr Hardtmann) ~ 27.4.2018
 
 
-Wenn du gemobbt wirst bist du selber schuld ~ Timo Ege 18.4.2018
+"Wenn du gemobbt wirst bist du selber schuld" ~ Timo Ege, 18.4.2018
 
-
-Felix, was machst du unterm Tisch?
-~Frau Hardtmann 23.4.2018
-
+"Felix, was machst du unterm Tisch?"
+~ Frau Hartmann 23.4.2018
 
 Frau Hardtnann: Abdullah, Handy her!
 Abdullah: warum?
@@ -597,7 +555,7 @@ Es gibt eine Neuauflage der Englischbücher für euch.
 
 Vlg Alex
 [4/19, 3:10 PM] Maxi Goehrke: Xoxo
-[4/19, 3:11 PM] Thomas S: Benutzen wir die genauso wenig wie die letzten?
+[4/19, 3:11 PM] S: Benutzen wir die genauso wenig wie die letzten?
 
 MFG Thomas
 [4/19, 3:32 PM] Maxi Goehrke: Guten morgen abdullah
@@ -673,7 +631,7 @@ Julian: Nein
 Ich: Was für ein Ketzer!
 
 
-Herr Gräßle: oben oder unten?
+Herr Grässle: oben oder unten?
 Phillip: ja
 ~12.4.2018
 
@@ -681,7 +639,7 @@ Phillip: ja
 Philipp (über Mohamed): er schaut mich an wie ne Ziege
 ~ 12.4.2018
 
-Herr Gräßle( zu Phillip): Er[Mohamed] darf dir nichts tun. Sobald er auf dich einprügelt werden ich sagen:" Hey, Stop! Du darfst dass nicht!"
+Herr Grässle( zu Phillip): Er[Mohamed] darf dir nichts tun. Sobald er auf dich einprügelt werden ich sagen:" Hey, Stop! Du darfst dass nicht!"
 ~ 12.4.2018
 
 
