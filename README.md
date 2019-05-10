@@ -313,142 +313,108 @@ Frau Schlappa: "Ich möchte jetzt gehen!"
 * Schulglocke Leutet
 ~ 25.6.2018
 
+"Ich steck mein Dick da rein" ~ Thomas Schuehly, 20.6.2018
 
-Ich steck mein dick da rein ~ Thomas Shuely  20.6.2018
+"Warum habt ihr alle Eingänge?" ~ 20.6.2018
 
+"Ey, der Mann ist da! Der Führermann!" ~ Julian Eiperle, 20.6.2018
 
-Warum habt ihr alle Eingänge? ~ 20.6.2018
+"Marc, Steck das Ding wieder rein!" ~ Julian Eiperle, 20.6.2018
 
+"Ich bin rechts" ~ Lukas Rehm, 20.6.2018
 
-Ey, der Mann ist da! Der Führermann ~ Julian Eiperle 20.6.2018
-
-
-Marc, Steck das Ding wieder rein! ~ Julian Eiperle 20.6.2018
-
-
-Ich bin rechts ~ Lukas Rehm 20.6.2018
-
-
-Frau scheib: Ich hab ne Aufgabe für euch.
-Maximilian Goerkhe: No hablo inglés!
-Frau scheib: was? Du sprichst kein Deutsch?
+Frau scheib: "Ich hab ne Aufgabe für euch."
+Maximilian Goehrke: "No hablo inglés!"
+Frau Scheib: "Was? Du sprichst kein Deutsch?"
 ~ 18.6.2018
 
+"Frau Schlappa, Sie haben meinen Text nicht verstanden!" - Abdullah, 18.6.2018
 
-"Frau Schlappa, sie haben meinen Text nicht verstanden!" - Abdullah 18.6.2018
-
-
-Dominik, hör auf so viele Bilder zu machen! Wegen dir wird Google noch Arm!
+"Dominik, hör auf so viele Bilder zu machen! Wegen dir wird Google noch arm!"
 ~ Janik Wieland 18.6.2018
 
+"Wer bescheißt wird erschossen" ~ Lehrer vor der Deutsch Klassenarbeit, 18.5.2018
 
-Wer bescheißt wird erschossen ~ Lehrer vor der Deutsch Klassenarbeit (18.5.2018)
+"Soll ich meine Nummer aufschreiben damit ihr mich anrufen könnt, falls ihr nicht kommt?" ~ Frau Hartmann, 15.6.2018
 
-
-Soll ich meine Nummer aufschreiben damit ihr mich anrufen könnt, falls ihr nicht kommt? ~ Frau Hardtnann 15.6.2018
-
-
-Frau Hardtnann: wo ist Mohammed?
-Schüler: der hat sich [von der Schule] abgemeldet, sagt zumindest Abdullah
-Anderer Schüler: Abdullah hat sich auch abgemeldet.
-Frau Hardtnann: wirklich?
-Schüler: nein [Abdullah ist noch angemeldet]
-Frau Hardtnann: schade!
+Frau Hardtnann: "Wo ist Muhammed?"
+Schüler: "Der hat sich [von der Schule] abgemeldet, sagt zumindest Abdullah."
+Anderer Schüler: "Abdullah hat sich auch abgemeldet."
+Frau Hardtmann: "Wirklich?"
+Schüler: "Nein [Abdullah ist noch angemeldet]"
+Frau Hardtnann: "Schade!"
 ~ 15.6.2018
 
-
-I'm not an atheist, I believe in Jehammed.
+"I'm not an atheist, I believe in Jehammed."
 ~ Dominik Gierl 14.6.2018
 
-
-Ich: Tiefer!
-Schneller!
-Länger!
-Härter!
-Benno: waaas?
-Ich: und lauter!
-~14.6.2018
-
-Kontext: ich sagte "fick dich", Benno mache Geräusche und sagte hab ich gemacht. Danach: siehe oben
-
+Dominik: "Tiefer!"
+"Schneller!"
+"Länger!"
+"Härter!"
+Benno: "Waaas?"
+Dominik: "Und lauter!"
+~ 14.6.2018
 
 *nachrechnen, wie viele nächstes Schuljahr nicht mehr da sind
-Frau Schlappa: 5.
-Ich: Sind schon Recht viele.
-Frau Schlappa: dann muss ich weniger korrigieren
+Frau Schlappa: "5."
+Dominik: "Sind schon Recht viele."
+Frau Schlappa: "Dann muss ich weniger korrigieren"
 ~ 13.6.2018
-
 
 * Alex nimmt Achim in den Arm
-Alex: Maxi, wir gehen kurz aufs Klo!
+Alex: "Maxi, wir gehen kurz aufs Klo!"
 ~ 13.6.2018
 
+"Timo!? Ich hab ihn von seinem Unterteil gar nicht erkannt" ~ Julian Eiperle, 13.6.2018
 
-Timo!? Ich hab ihn von seinem Unterteil gar nicht erkannt ~ Julian Eiperle 13.6.2018
-
-
-Janik (singing): always look at the bright side of life
-Me: Nothing means anything, we are all going to die!
+Janik (singing): "Always look at the bright side of life"
+Domi: "Nothing means anything, we are all going to die!"
 Janik is laughing
-Me: but on the bright side: everything can mean something to you
-~7.6.2018
+Domi: "but on the bright side: everything can mean something to you"
+~ 7.6.2018
 
+Schüler: "Frau Scheib, haben Sie noch irgendwelche Fragen?"
+Frau Scheib: "Ich bin müde, ich will schlafen"
+~ 2018
 
-Frau Scheib, haben Sie noch irgendwelche Fragen?
-"Ich bin müde, ich will schlafen" - Fr. Scheib 2018
+"Ich werde dich schänden!" ~ Benno seiboth 5.6.2018
 
+Herr Gräßle: "Welche Einheit wird hier gebraucht [...] Geschwindigkeit"
+Domi: "Spannung"
+~ 2.3.2018, Physikunterricht
 
-Ich werde dich schänden!
-~Benno seiboth 5.6.2018
-
-
-Herr gräßle: Welche Einheit wird hier gebraucht [...] Geschwindigkeit
-Ich: Spannung
-
-(2.3.2018, Physikunterricht)
-
-
-Da könnt ihr saugen so viel ihr wollt, irgendwann gibt's halt nicht mehr
-~ Herr gräßle (2.3.2018)
-
+"Da könnt ihr saugen so viel ihr wollt, irgendwann gibt's halt nicht mehr"
+~ Herr Gräßle, 2.3.2018
 
 ...Natur anfassen
-Ich bin nicht natur!
-~4.6.2018 Frau Schlappa
+"Ich bin nicht natur!" ~ 4.6.2018 Frau Schlappa
 
+Herr Alb (zu Julian Eiperle): "Ketzer!"
+~ 22.02.2018
 
-Herr Alb (zu Julian Eiperle): Ketzer!
-~22.02.2018
-#TGI Quotes
+Schüler: "Ist dass dann wie bei LSD?"
+Herr Schmidt: "Dabei hab ich leider keine Erfahrung"
+Klasse: "LEIDER"
+Herr Schmidt: "Bei euch landet auch jedes Wort auf der Goldwaage"
+~ 20.2.2018
 
+"Wenn ihr was verpasst, habt ihr echt was verpasst" ~ Frau Scheib, 2017
 
-Schüler: ist dass dann wie bei LSD?
-Herr Schmidt: dabei hab ich leider keine Erfahrung
-Klasse: LEIDER
-Herr Schmidt: bei euch landet auch jedes Wort auf der Goldwaage
+"Egal ob legal oder illegal, Hauptsache Drogen benebeln das Hirn" ~ Herr Frommer, 2017
 
-(20.2.2018)
-#TGI Quotes
+"Die Technik ist out" ~ Frau Scheib, 2017
 
+"Es ist nicht 'das' Baby, es ist immernoch ein Mensch!" ~ Frau Scheib, 2018
 
-[12/5/2017, 10:52 AM] Melvin Schwaller: „Wenn ihr was verpasst, habt ihr echt was verpasst“ - Scheib, 2017
+"Ich möchte gerne sterben! Jetzt!" ~ Frau Scheib, 2018
 
-[12/7/2017, 9:13 AM] Melvin Schwaller: „Egal ob legal oder illegal, Hauptsache Drogen benebeln das Hirn“ - Frommer 2017
+"Herr Frommer, ich kann's Ihnen besorgen!" ~ Thomas, 2018
 
-[12/19/2017, 9:36 AM] Alex Pflug: "Die Technik ist out" - Fr. Scheib 2017
-
-[1/9, 10:24 AM] Alex Pflug: "Es ist nicht 'das' Baby, es ist immernoch ein Mensch!" - Fr. Scheib 2018
-
-[1/16, 10:28 AM] Alex Pflug: "Ich möchte gerne sterben - jetzt!" - Fr. Scheib 2018
-
-[2/20, 9:34 AM] Alex Pflug: "Ich kann's ihnen besorgen!" - Thomas 2018
-
-#TGI Quotes
-
-
-Ja, ER ist negativ! ~ Max Maurer 2018
-Emilio: der Schwangerschaftstest?
-Max: ja
+Max Maurer: "Ja, ER ist negativ!"
+Emilio: "Der Schwangerschaftstest?"
+Max: "Ja"
+~ 2018
 
 //28.2.2018
 (Also max Maurer am handy war)
