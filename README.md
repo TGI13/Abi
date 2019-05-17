@@ -435,206 +435,111 @@ Alex: "Haben sie ihre Betragsstriche Zuhause vergessen?"
 
 "Google - die freundliche Datenkrake von nebenan" ~ Janik Wieland, 2018
 
-"Neger." - Frau Scheib, 3.5.2018
-
 "Wo zeigt der Mittelfinger hin?"
 "Er zeigt zu euch."
 "Da gehört er hin!"
 ~ Herr Grässle 3.5.2018
 
-
 *Diskussion über das Wort Neger
 Alex: "So lange du sie nicht Menschen nennst"
 ~ 3.5.2018
 
-Maxi G: "Im Internet stimmt alles, da steht ja auch 'Wikipedia hat immer Recht' ~Abraham Lincoln.
-Cassandra: Hä? Was stimmt daran nicht?
+Maxi G: "Im Internet stimmt alles, da steht ja auch 'Wikipedia hat immer Recht' ~ Abraham Lincoln.
+Cassandra: "Hä? Was stimmt daran nicht?"
 
-Frau Scheib: Max, Alex was macht ihr denn? Zieht euch wieder an! (18.10.2017 11:14 AM in der Karl-Arnold-Schule In Biberach während des Englisch Unterrichtes)
+"Max, Alex was macht ihr denn? Zieht euch wieder an!" ~ Frau Scheib, 18.10.2017
 
+"Leute vergessen gerne, was sie nicht hören" ~ Frau Scheib, 02.05.2018
 
-Man muss nicht immer alles hinterfragen ~ Abdullah 2017
+"Ich will kommen!"
+~ Abdullah, 30.04.2018
 
+Frau Hartmann: "Was macht ihr da da hinten?"
+Max M.: "Fummeln!"
 
-Schlappa: tu des Handy vom tisch
-Benno: des isch nicht meins
-Jonas: des isch doch maxis
-maxi, saß am anderen Ende des klassenzimmers
-~4.5.2018
+"Ich möchte die Lösung von Julian nicht völlig verteufeln" ~ Herr Ernst, 23.04.2018
 
+Abdullah: "Frau Hartmann, Alex redet die ganze Zeit, da sagen sie nie was."
+Abdullah: "Aha, jetzt ignorieren sie mich auch noch"
+Alex: "Frau Hartmann, können sie bitte den Abdullah ruhig stellen, der nervt mich schon die ganze Zeit."
+Frau Hartmann: "Abdullah SEI JETZT MAL ENDLICH LEISE UND SETZ DICH GESCHEIT HIN!"
+Abdullah: "Wollen Sie mich eigentlich verarschen?"
 
-Leute vergessen gerne, was sie nicht hören ~Fr. Scheib 2.5.2018
+Merlin: "Alex, wann bist du eigentlich vom Nazi zum Kommunisten geworden?"
+Alex: "des macht viel mehr Spaß"
+~ 18.4.2018
 
+"Was isch mit dir? Handstand und Rad kannsch du it aber n Salto macha."
+~ Jonas zu Domi, 25.4.2018
 
-Ich will kommen!
-~Abdullah 30.4.2018
+"Es macht ja keinen Sinn dass du hier in die Schule gehst"
+~ Herr Alb, 26.04.2018
 
+"Wenn du gemobbt wirst bist du selber schuld" ~ Timo Ege, 18.04.2018
 
-Frau Hardtnann: was macht ihr da da hinten?
-Max M.: Fummeln!
+"Felix, was machst du unterm Tisch?" ~ Frau Hartmann, 23.04.2018
 
-
-Ich möchte die Lösung von Julian nicht völlig verteufeln ~ Herr Ernst 23.4.2018
-
-
-Abdullah: Frau Hartmann, Alex redet die ganze Zeit, da sagen sie nie was.
-Abdullah: Aha, jetzt ignorieren sie mich auch noch
-Alex: Frau Hartmann, können sie bitte den Abdullah ruhig stellen, der nervt mich schon die ganze Zeit.
-Frau Hartmann: Abdullah SEI JETZT MAL ENDLICH LEISE UND SETZ DICH GESCHEIT HIN!
-Abdullah: Wollen Sie mich eigentlich verarschen?
-
-
-Merlin: Alex, wann bist du eigentlich vom Nazi zum Kommunisten geworden?
-Alex: des macht viel mehr Spaß
-18.4.2018
-
-
-Was isch mit dir? Handstand und Rad kannsch du it aber n Salto macha.
-~Jonas (zu mir) 25.4.2018
-
-
-Es macht ja keinen Sinn dass du hier in die Schule gehst
-~ Herr Alb 26.4.2018
-
-
-Warum machen sie mich an und nicht die halbe Klasse die mich seit ner halben Stunde anmuckt
-~ Abdullah (laut schreiend, zu fr Hardtmann) ~ 27.4.2018
-
-
-"Wenn du gemobbt wirst bist du selber schuld" ~ Timo Ege, 18.4.2018
-
-"Felix, was machst du unterm Tisch?"
-~ Frau Hartmann 23.4.2018
-
-Frau Hardtnann: Abdullah, Handy her!
-Abdullah: warum?
-Hardtmann: dann Tus weg!
+Frau Hartmann: "Abdullah, Handy her!"
+Abdullah: "Warum?"
+Hardtmann: "Dann Tus weg!"
 *Abdullah zockt weiter
+~ 27.04.2018
 
-~27.4.2018
+"I hab koi Ahnung von dem Zeug" ~ Herr Schmid, 18.04.2018
 
+"Leise kommunistisch sein" ~ Alex, 18.04.2018
 
-I hab koi Ahnung von dem Zeug ~ Herr Schmidt 18.4.2018
+"Die kacke wied abgeblasen" ~ Herr Grässle
 
+Herr Alb: "Wer ist historisch gesehen ein Übermensch der schlimmes getan hat? Vorname beginnt mit A und der Nachname mit H."
+Timo Ege: "Jesus"
+~ 22.3.2018
 
-Leise kommunistisch sein ~ Alex 18.4.2018
+"Dann müsst ihr 3 Mal poppen" ~ Herr Schmid, 21.03.2018
 
+"Ihr müsst zuerst pushen und dann poppen" ~ Herr Schmid, 21.03.2018
 
-[4/13, 7:36 AM] Achim Giefel: Zitat grässle: die kacke wied abgeblasen
-[4/13, 7:36 AM] Achim Giefel: der muss erst en raum suchen und kommt später
-
-
-Herr Alb: Wer ist historisch gesehen ein Übermensch der schlimmes getan hat? Vorname beginnt mit A und der Nachname mit H.
-Timo Ege: Jesus
-~22.3.2018
-
-
-Benno: Töte mich, Domi!
-TÖTE MICH!!
-Ich: Glei, i muss erst no aufs Klo.
-~21.3.2018
+"ich glaube wir sind noch nicht an dem Punkt, an dem wir vor KI Angst haben müssen" (https://photos.app.goo.gl/1GcQRXsDLND4FEKy1) ~ Janik Wieland, 20.03.2018
 
 
-Dann müsst ihr 3 Mal poppen ~ Herr Schmidt 21.3.2018
+Schüler: "Frau Scheib, kriegen wir den vokabeltest?"
+Frau Scheib: "Welcher Vokabeltest?"
+~ 20.03.2018
 
+"Wir haben gerubbelt wie verrückte" ~ max Maurer, 16.03.2018
 
-Ihr müsst zuerst pushen und dann poppen ~ Herr Schmidt 21.3.2018
+Maxi Goerkhe: "Domi, was trägst du eigentlich für n Schal?"
+Domi: "Ich hab Halsschmerzen"
+Maxi Goerkhe: "Aber im tschirt Rum sitzen"
+Domi: "Der Schmerz sitzt ja nicht in den Armen"
+~ 16.03.2018
 
+Janik (zu Lukas R): "Du vibrierst."
+Lukas: "Kommt vor."
+Janik: "Was liest?"
+Dominik (für Lukas): "Der Vibrator"
+~ 15.03.2018
 
-[4/19, 3:09 PM] Fr Scheib: Jeder bringt bitte morgen sein Englischbuch mit!
+"Wenn man an einem BigMac denken kann und an keinen höheren BigMac denken kann" (Gottesbeweis nach Herr Alb) ~ 2018
 
-Prüft, dass euer Namen im Buch steht.
+"Mann muss immer den hohen Pegel halten" ~ Herr Schmid, 14.03.2018
 
-Die Klassensprecher lassen die Bücher gesammelt in meinem Stützpunkt (R.268) abgeben.
+"Man muss den Zettel doch nicht heute sondern übergestern mitbringen..."
+"Warte, des ist theoretisch heute..."
+~ Domi, 14.3.2018
 
-Es gibt eine Neuauflage der Englischbücher für euch.
-:)
-[4/19, 3:09 PM] Alex Pflug: Wir haben Englischbücher?
-[4/19, 3:09 PM] Maxi Goehrke: Ihnen ist bewusst dass wir gar keine englischbücher haben oder?
-[4/19, 3:10 PM] Alex Pflug: Danke Frau Scheib,
+"Bevor ich dann wieder 5 microsekunden high bin" ~ Herr Schmid, 14.03.2018
 
-Vlg Alex
-[4/19, 3:10 PM] Maxi Goehrke: Xoxo
-[4/19, 3:11 PM] S: Benutzen wir die genauso wenig wie die letzten?
+"Ich hab Muskelkater im rechten Arm" ~ Marc Auberer, 01.03.2018
 
-MFG Thomas
-[4/19, 3:32 PM] Maxi Goehrke: Guten morgen abdullah
-[4/19, 3:33 PM] Abdullah: Lul
-[4/19, 3:33 PM] Abdullah: Wir haben doch keine englisch bücher* so
-[4/19, 3:43 PM] Fr Scheib: Ja :)
-[4/19, 3:44 PM] Abdullah: Also keine bücher mitbringen :)
-[4/19, 3:49 PM] Fr Scheib: Doch: alte Bücher abgegeben und neue bei Herrn Welte abholen.
-[4/19, 3:50 PM] Maxi Goehrke: Wie denn wen wir doch keine bekommen haben???
-[4/19, 3:50 PM] Fr Scheib: ... und dann ggf fürs Abi damit lernen oder Grammatik wiederholen.
-[4/19, 3:50 PM] Abdullah: Also alle alten bücher oder wie?
-[4/19, 3:50 PM] Fr Scheib: ? Wer ein Englischbuch hat, der bringt das mit.
-[4/19, 3:50 PM] Abdullah: ...
-[4/19, 3:50 PM] Thomas S: also irgendeins
-[4/19, 3:51 PM] Maxi Goehrke: Frau scheib, sie haben hr welte am anfang des schuljahres gesagt er bräuchte uns keine auszuteilen
-[4/19, 3:51 PM] Fr Scheib: Nur die Englisch-Fachschaft hat neue Bücher bestellt.
+Domi: "Julian, bist du für die Wiedereinführung des Scheiterhaufens?"
+Julian: "Nein"
+Domi: "Was für ein Ketzer!"
+~ 2018
 
-
-ich glaube wir sind noch nicht an dem Punkt, an dem wir vor KI Angst haben müssen ~ Janik Wieland 20.3.2018
-
-https://photos.app.goo.gl/1GcQRXsDLND4FEKy1
-
-
-Schüler: Frau scheib, grigen wir den vokabeltest?
-Frau Scheib: welcher Vokabeltest?
-(20.3.2018)
-
-
-Wir haben gerubbelt wie verrückte
-~max Maurer 16.3.2018
-
-
-Wo ist die Demokratie an dieser Schule?
-~ Frau scheib 2018
-
-
-Maxi Goerkhe: Domi, was trägst du eigentlich für n gayboi-schal?
-Ich: ich hab Halsschmerzen
-Maxi Goerkhe: aber im tschirt Rum sitzen
-Ich: der Schmerz sitzt ja nicht in den Armen
-~16.3.2018
-
-
-Janik (zu Lukas r.): Du vibrierst.
-Lukas r.: Kommt vor.
-Janik: was liest?
-Dominik (für Lukas): der Vibrator
-~15.3.2018
-
-
-Wenn man an einem bigmac denken kann und an keinen höheren bigmac denken kann
-(Gottesbeweis nach Herr Alb, 2018)
-
-
-Mann muss immer den hohen Pegel halten ~ Herr Schmidt 14.3.2018
-
-
-Man muss den Zettel doch nicht heute sondern übergestern mitbringen...
-Warte, des ist theoretisch heute...
-~ ich 14.3.2018
-
-
-Bevor ich dann wieder 5 mücro Sekunden high bin ~ Herr Schmidt 14.3.2018
-
-
-Ich hab Muskelkater im rechten Arm ~ Marc Auberer 1.3.2018
-
-#TGI Quotes
-
-
-Ich: julian, bist du für die Wiedereinführung des Scheiterhaufens?
-Julian: Nein
-Ich: Was für ein Ketzer!
-
-
-Herr Grässle: oben oder unten?
-Phillip: ja
-~12.4.2018
-
+Herr Grässle: "Oben oder unten?"
+Phillip: "Ja"
+~ 12.04.2018
 
 Philipp (über Mohamed): er schaut mich an wie ne Ziege
 ~ 12.4.2018
