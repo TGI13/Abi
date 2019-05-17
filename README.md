@@ -548,3 +548,32 @@ Phillip: "Ja"
 „Ihr müsst auf passen, dass ihr wisst wo ich die 18 Punkte angesetzt habe“ ~ Frau Scheib
 
 "Oh mein Gott, ihr armen. Ich möcht euch alle in den Arm nehmen und trösten." ~ Frau Schlappa, 11.04.2018
+
+*Julian und Frau Scheib diskutieren über Religion
+*Janik Wieland kommt mit dem Messer
+Janik zu Julian: "Macht's wie die Kreuzritter"
+~ 14.05.2019
+
+Janik: "Wir haben die Türken aussortiert."
+Herr Pfundstein: "Gut"
+~ 10.5.2019
+
+"Er kommt ständig in den Listener rein, spuckt aber seltsame Werte aus." ~ Herr Ernst, 10.05.2019
+
+Frau Schlappa: "Ich hab es geschafft und die Deutsch Klassenarbeit korrigiert."
+Benno: "Und unsren Tag ruiniert!"
+~ 21.3.2019
+
+"Jetzt gehn wir hier Mal tiefer rein" - Herr Bammert, 28.2.2019
+
+"Suizid ist immer ne Möglichkeit" ~ Maxi Goehrke, 27.02.2019
+
+"Die Welt geht wegen Umweltschutz eh unter" ~ Phillip Bärsauter
+
+Schüler(Janik W.?): "Ich glaub Julian ist krank"
+Merlin: "Ja, er ist Christ, das wissen wir."
+~ 25.02.2019
+
+"Ich vergebe nicht gerne Unterkurse" ~ Herr Bammert, 20.02.2019
+
+"Ich bin keine Frau" ~ Benno Seiboth, 11.02.2019
