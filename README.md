@@ -541,21 +541,10 @@ Herr Grässle: "Oben oder unten?"
 Phillip: "Ja"
 ~ 12.04.2018
 
-Philipp (über Mohamed): er schaut mich an wie ne Ziege
-~ 12.4.2018
+"Er schaut mich an wie ne Ziege" ~ Philip (über Muhammed), 12.4.2018
 
-Herr Grässle( zu Phillip): Er[Mohamed] darf dir nichts tun. Sobald er auf dich einprügelt werden ich sagen:" Hey, Stop! Du darfst dass nicht!"
-~ 12.4.2018
+"Er[Mohamed] darf dir nichts tun. Sobald er auf dich einprügelt werden ich sagen:' Hey, Stop! Du darfst dass nicht!'" ~ Herr Grässle( zu Philip), 12.04.2018
 
+„Ihr müsst auf passen, dass ihr wisst wo ich die 18 Punkte angesetzt habe“ ~ Frau Scheib
 
-„Ihr müsst auf passen das ihr wisst wo ich die 18 Punkte angesetzt habe“- Frau Scheib
-
-
-Oh mein Gott, ihr armen. Ich möcht euch alle in den Arm nehmen und trösten ~ Frau Schlappa 11.4.2018
-
-
-*Diskussion dass man sich im christlichen Glauben frei entfalten kann und nicht eingeschränkt wird
-Ich: aber Julian, im Christentum kann man nicht Mal schwul sein?!
-Julian: Es geht ja auch um die Freie Entfaltung in dem was richtig ist und nicht in dem was falsch ist.
-
-~19.4.2018
+"Oh mein Gott, ihr armen. Ich möcht euch alle in den Arm nehmen und trösten." ~ Frau Schlappa, 11.04.2018
