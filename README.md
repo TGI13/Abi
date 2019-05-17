@@ -144,7 +144,7 @@ Frau Scheib: "Darf er das überhaupt?"
 Frau Scheib: "Viel Erfolg!"
 ~ 15.10.2018
 
-Marc Auberer: "Ich hab mir grad Spontan n Google Home Mini bestellt."
+Marc: "Ich hab mir grad Spontan n Google Home Mini bestellt."
 Jonas Groß: "Geb's doch zu, Domi hat dich dazu angestiftet"
 ~ 12.10.2018
 
@@ -210,23 +210,23 @@ Alex Pflug: "Sag mal, haben sie Hummeln im Hintern?"
 
 "Hallo Volk" ~ Alex Pflug, September 2018
 
-"Ich würd gern kommen aber ich kann nicht" ~ Janik Wieland, 26.9.2018
+"Ich würd gern kommen aber ich kann nicht" ~ Janik Wieland, 26.09.2018
 
-"Dann bekommt ihr einen Thomas" ~ Frau Schlappa, 26.9.2018
+"Dann bekommt ihr einen Thomas" ~ Frau Schlappa, 26.09.2018
 
 Benno: "Kommt Jesus in dich?"
 Julian: "Ja, beim Gottesdienst, wenn ich seinen Leib empfange, kommt er in mich."
 ~ September 2018
 
-"Delivery Nigger" ~ Benno Seiboth, 26.9.2018
+"Delivery Nigger" ~ Benno Seiboth, 26.09.2018
 
-"Da isch n Loch in der Mitte, ich sehr ja dann wenn was Weißes raus kommt" ~ Maxi Goehrke, 24.9.2018
+"Da isch n Loch in der Mitte, ich sehr ja dann wenn was Weißes raus kommt" ~ Maxi Goehrke, 24.09.2018
 
 "Ich hab mal aus Versehen Jura studiert" ~ Frau Scheib, 24.9.2018
 
-"C++ heist C++, weil in C++ c++ eingeführt wurde." ~ Marc Auberer, 24.9.2018
+"C++ heist C++, weil in C++ c++ eingeführt wurde." ~ Marc, 24.09.2018
 
-"Muslime sind immer Terroristen. Immer. Immer." ~ Pfundstein 2018, 21.9.2018
+"Muslime sind immer Terroristen. Immer. Immer." ~ Pfundstein 2018, 21.09.2018
 
 *Frau schlappa redet ewig lang mit anderer Lehrerin
 Alex: "manche Dinge ändern sich nie"
@@ -237,42 +237,42 @@ Frau Schlappa: "Cassandra, wenn er [Alex] dich nervt, musst du ihn packen und sc
 Alex: "Sie riechen heute gut Frau Schlappa."
 Frau Schlappa: "Ich geh dann Mal wieder"
 
-"Des versteh ich nicht" ~ Frau Scheib, 14.9.2018
+"Des versteh ich nicht" ~ Frau Scheib, 14.09.2018
 
 Herr Bammert: "Wo vorne und hinten ist, ist Definitionssache."
 Benno: "Wie bei ner Frau"
-~ 13.9.2018
+~ 13.09.2018
 
-"Mir gehat jetzt heut tiefer rein" ~ Herr Bammert, 13.9.2018
+"Mir gehat jetzt heut tiefer rein" ~ Herr Bammert, 13.09.2018
 
-"Zoom mir nicht unter den Rock hier!" ~ Frau Schlappa, 12.9.2018
+"Zoom mir nicht unter den Rock hier!" ~ Frau Schlappa, 12.09.2018
 
-"Ihr dürft die Handys nicht abschalten und in den Schulranzen packen" ~ Herr Bammert, 12.9.2018
+"Ihr dürft die Handys nicht abschalten und in den Schulranzen packen" ~ Herr Bammert, 12.09.2018
 
-"Irgendwann hörst du einfach auf Licht zu reflektieren" ~ Benno Seiboth, 10.9.2018
+"Irgendwann hörst du einfach auf Licht zu reflektieren" ~ Benno Seiboth, 10.09.2018
 
 Frau Scheib teilt Zeugnis aus
 Frau Scheib: "Seslilaya, gut gemacht! Weiter so!"
-~ 25.7.2018
+~ 25.07.2018
 
 *Mark wirft Alex mit Papierkugel ab
 Alex: "Aua"
 Frau Scheib: "Verdient!"
-~ 24.7.2018
+~ 24.07.2018
 
-"Schwarze haben sich einfach Strafen verdient!" ~ Frau Scheib, 10.7.2018
+"Schwarze haben sich einfach Strafen verdient!" ~ Frau Scheib, 10.07.2018
 
 Timo: "woher wissen sie, dass Philip nicht recherchiert hat?"
 Frau scheib: "Schau ihn doch mal an"
-~ 10.7.2018
+~ 10.07.2018
 
-"Ich weiß gar nicht was ich ihm antun würde, wenn ich's könnte" ~ Frau Schlappa (über Alex), 9.7.2018
+"Ich weiß gar nicht was ich ihm antun würde, wenn ich's könnte" ~ Frau Schlappa (über Alex), 09.07.2018
 
-"Wir könnten ihn wie ne piñata aufhängen und drauf schlagen" ~ Frau Schlappa (über Alex), 9.7.2018
+"Wir könnten ihn wie ne piñata aufhängen und drauf schlagen" ~ Frau Schlappa (über Alex), 09.07.2018
 
-"Dann roll ich hier mal raus" ~ Frau Schlappa, 9.7.2018
+"Dann roll ich hier mal raus" ~ Frau Schlappa, 09.07.2018
 
-"Des muss richtig sein, weil es richtig ist." ~ Merlin 6.7.2018
+"Des muss richtig sein, weil es richtig ist." ~ Merlin Sommerfeld, 06.07.2018
 
 Frau Scheib: "auf jetzt, nach vorne!"
 Alex: "Ach komm schon, nur noch dieses Level"
@@ -530,7 +530,7 @@ Dominik (für Lukas): "Der Vibrator"
 
 "Bevor ich dann wieder 5 microsekunden high bin" ~ Herr Schmid, 14.03.2018
 
-"Ich hab Muskelkater im rechten Arm" ~ Marc Auberer, 01.03.2018
+"Ich hab Muskelkater im rechten Arm" ~ Marc, 01.03.2018
 
 Domi: "Julian, bist du für die Wiedereinführung des Scheiterhaufens?"
 Julian: "Nein"
