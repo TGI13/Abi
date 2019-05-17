@@ -577,3 +577,5 @@ Merlin: "Ja, er ist Christ, das wissen wir."
 "Ich vergebe nicht gerne Unterkurse" ~ Herr Bammert, 20.02.2019
 
 "Ich bin keine Frau" ~ Benno Seiboth, 11.02.2019
+
+"Der Krieg war echt witzig" ~ Lukas Rehm, 15.05.2019
